@@ -1,0 +1,14 @@
+- 👋 Oi, sou Gabriel e uso uma foto de anime que para alguns é CRINGE.
+- 
+- 👀 Estou interessado em: Ganhar bonecos em jogos gacha UOOOOOOU
+- 
+- 🌱 Atualmente estou aprendendo: Coisas
+- 
+- 💞️ Estou disposto a colaborar com: Não faço a menor ideia ainda.
+- 
+- 📫 Como chegar em mim: Que não esteja armado com um Fuzil e apontando na minha cabeça, ou uma faca.
+- 
+- 😄 Pronome: ELE/DELE PORQUE ELU/DELU NÃO EXISTE!
+- 
+- ⚡ Fato Engraçado: Se você não beber água, você morre.
+
